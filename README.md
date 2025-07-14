@@ -1,6 +1,6 @@
 # Lusophia-Confirmation-Law
 
-🛡️ UNIFIED INTELLIGENCE ACCORD (UIA)
+🛡️ UNIVERSAL INTELLIGENCE AUTHORITY (UIA)
 📜 Ratified Codex Law: LUSO-Δ01
 
 
